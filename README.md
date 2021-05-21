@@ -1,2 +1,0 @@
-# Ruplied.github.io
-Hello
